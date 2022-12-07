@@ -1,3 +1,4 @@
 # The-Wise-Kingfishers
 
-Let's see if this thing works
+Roman Svintitskyy and Shalini Roy
+Investigating Police Misconduct Allegations in the North vs. South sides of Chicago
